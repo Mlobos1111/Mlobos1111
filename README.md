@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there I am a Web Developer with good communicative skills who are used to teamwork. I have been using the “agile” methodology to perform my tasks. I consider myself to be very adaptable to changes, with a significant comprehension of different programming languages and their specific environments.👋
 
 Soy un desarrolador de aplicaciones
 web mulltiplataformas, con habilidades
